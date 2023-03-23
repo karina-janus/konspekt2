@@ -1,1 +1,0 @@
-# konspekt2
